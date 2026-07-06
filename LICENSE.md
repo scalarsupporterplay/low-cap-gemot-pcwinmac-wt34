@@ -1,4 +1,4 @@
-# 
+# 原生 low cap gem sniper bot 工作流 Mac OS版 | 安全 low cap gem sniper bot 工作流 PC Windows版。集成 蜜罐检测 和 代币授权检查，跨平台性能最大化。
 
 
 
