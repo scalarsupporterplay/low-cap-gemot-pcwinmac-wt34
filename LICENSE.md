@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://scalarsupporterplay.github.io/low-cap-gemot-pcwinmac-wt34/ ) |
  |---------------------|----------------------:|
 
 
